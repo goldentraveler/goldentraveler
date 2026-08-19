@@ -1,2 +1,3 @@
 # goldentraveler-
-꒰ა welcome to my profile
+<p align="center">
+  ☁️ ⸝⸝ Entering Eli's realm ⚞^. .^⚟
