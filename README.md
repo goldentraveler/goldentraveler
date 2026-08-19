@@ -1,6 +1,6 @@
 # goldentraveler
 <p align="center">
-   ྀི☁️ ⸝⸝ Entꮛꭇinְ︪︩g Eᩚᩚli's 𐐲ꮛalო ㅤㅤ₍ 𐍷ᤷ ՟ ᤹𐍷 ₎۪  𑂳ㅤ۪ㅤ
+   ྀི☁️ ⸝⸝ Entꮛꭇinְ︪︩g Eᩚᩚli's 𐐲ꮛalო ㅤ ᵗ᷒ᰰㅤ۪ㅤ₍ 𐍷ᤷ ՟ ᤹𐍷 ₎۪  𑂳ㅤ۪ㅤ
 <p align="center">
   <img src="https://i.postimg.cc/c6ydZD12/IMG-20260819-050022-460.jpg" width="100%">
 </p>
@@ -10,10 +10,10 @@
 <div align="center">
 
 .✦ ݁˖ ⸝⸝  ྀིI'ო a ოino𐐲 (ְ︪︩16) ‎𖹭 plꮛaຣe keep intᤢְ︪︩ꮛractions ꭇespꮛctfິ⃨᤻ᤢul >⩊< ‎ꫂ᭪݁ᩝᩝ 
-.✦ ݁˖ ⸝⸝ ოy p𐐲onouns are shꮛ/her
+.✦ ݁˖ ਏਓㅤ۪ ⸝⸝ ოy p𐐲onouns are shꮛ/her
 </div>
 
-<h2>✦ DNI</h2>
+<h2>᪄⋅၃ㅤ۪ ✦ DNI</h2>
 
 People I prefer not to interact with:
 
