@@ -44,3 +44,7 @@ I mostly spend my time in the HoYoverse area ꒰ Safe Server #1 ! ꒱
 <div align="center">
   
 I'm often AFK while doing my everyday things so don't be surprised if I don't reply right away Ი︵𐑼
+<p align="center">
+  <img src="https://i.postimg.cc/htV6HD75/1787105318710.png" width="100%">
+<p align="center">
+  <img src="https://i.postimg.cc/MKmGqSR1/1787102996890.png" width="100%">
