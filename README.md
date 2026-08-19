@@ -9,7 +9,9 @@
 </p>
 <div align="center">
 
-.✦ ݁˖ ⸝⸝  ྀིI'ო a ოino𐐲 (ְ︪︩16) ‎𖹭 plꮛaຣe keep intᤢְ︪︩ꮛractions ꭇespꮛctfິ⃨᤻ᤢul >⩊< ‎ꫂ᭪݁ᩝᩝ 
+.✦ ݁˖ ⸝⸝  ྀིI'ო a ოino𐐲 (ְ︪︩16) ‎𖹭 plꮛaຣe keep intᤢְ︪︩ꮛractions ꭇespꮛctfິ⃨᤻ᤢul ‌ ‌ >⩊< ‎ꫂ᭪݁ᩝᩝ 
+</p>
+<div align="center">
 .✦ ݁˖ ਏਓㅤ۪ ⸝⸝ ოy p𐐲onouns are shꮛ/her
 </div>
 
