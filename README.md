@@ -31,6 +31,6 @@ The full DNI list is available on my Strawpage .𖥔 ݁ ˖  ૮ ‌֖ ‌ ᩧ֢ 
   
 I mostly spend my time in the HoYoverse area ꒰ Safe Server #1 ! ꒱
 <div align="center">
-   src="https://i.postimg.cc/htV6HD75/1787105318710.png" width="100%">
+  <img src="https://i.postimg.cc/htV6HD75/1787105318710.png" width="100%">
 <p align="center">
   <img src="https://i.postimg.cc/MKmGqSR1/1787102996890.png" width="100%">
