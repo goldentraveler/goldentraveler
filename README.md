@@ -7,3 +7,8 @@
 <p align="center">
   <img src="https://i.postimg.cc/MKmGqSR1/1787102996890.png" width="100%">
 </p>
+<div align="center">
+
+.✦ ݁˖ ⸝⸝ I'm a minor (16) ‎𖹭 please keep interactions respectful >⩊< ‎ꫂ᭪݁ 
+.✦ ݁˖ ⸝⸝ My pronouns are she/her
+</div>
