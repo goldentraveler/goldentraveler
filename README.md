@@ -9,7 +9,7 @@
 </p>
 <div align="center">
 
-.✦ ݁˖ ⸝⸝  ྀིI'ო a ოino𐐲 (ְ︪︩16) ‎𖹭 plꮛaຣe keep intᤢְ︪︩ꮛractions ꭇespꮛctfິ⃨᤻ᤢul ‌ ‌ >⩊< ‎ꫂ᭪݁ᩝᩝ 
+.✦ ݁˖ ⸝⸝  ྀིI'ო a ოino𐐲 (ְ︪︩1𝟨᪲) ‎𖹭 plꮛaຣe keep intᤢְ︪︩ꮛractions ꭇespꮛctfິ⃨᤻ᤢul ‌ ‌ >⩊< ‎ꫂ᭪݁ᩝᩝ 
 </p>
 <div align="center">
 .✦ ݁˖ ਏਓㅤ۪ ⸝⸝ ოy p𐐲onouns are shꮛ/her
@@ -17,7 +17,8 @@
 
 <h2>᪄⋅၃ㅤ۪ ✦ DNI</h2>
 
-People I prefer not to interact with:
+Ი፝֟𑪔𐑼ִ People I prefer not to interact with:
+ ෧─   ۪ 🐇ᩨ    ׄ   ׅ
 
 • disrespectful / rude behavior  
 • hate towards people or communities  
