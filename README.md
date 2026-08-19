@@ -20,10 +20,10 @@
 Ი፝֟𑪔𐑼ִ People I prefer not to interact with:
  ෧─   ۪ 🐇ᩨ    ׄ   ׅ
 
-• disrespectful / rude behavior  
-• hate towards people or communities  
-• unnecessary drama & negativity  
-• people who ignore boundaries  
+• 𖽟 disrespectful / rude behavior  
+• ᠀᷼◌ hate towards people or communities  
+• 𖽟 unnecessary drama & negativity  
+• ᠀᷼◌ people who ignore boundaries  
 The full DNI list is available on my Strawpage .𖥔 ݁ ˖  ૮ ‌֖ ‌ ᩧ֢ ᩧ‌ ᩧ֥‌ 𑇖
 
 ⸝⸝ Please check it before interacting with me.
