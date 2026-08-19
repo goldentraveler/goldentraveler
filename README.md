@@ -1,6 +1,6 @@
 # goldentraveler
 <p align="center">
-   ྀི☁️ ⸝⸝ Enterinְ︪︩g Eᩚᩚli's 𐐲ealm ㅤㅤ₍ 𐍷ᤷ ՟ ᤹𐍷 ₎۪  𑂳ㅤ۪ㅤ
+   ྀི☁️ ⸝⸝ Eꬻtꮛrinְ︪︩g Eᩚᩚli's 𐐲ꮛalო ㅤㅤ₍ 𐍷ᤷ ՟ ᤹𐍷 ₎۪  𑂳ㅤ۪ㅤ
 <p align="center">
   <img src="https://i.postimg.cc/c6ydZD12/IMG-20260819-050022-460.jpg" width="100%">
 </p>
