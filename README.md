@@ -29,22 +29,8 @@ The full DNI list is available on my Strawpage .𖥔 ݁ ˖  ૮ ‌֖ ‌ ᩧ֢ 
 </p>
 <div align="center">
   
-୨࣪ ִֶָ☾. I speak Persian + English 
-.𖥔 ݁ ˖‧˚꒰⭐୭ ˚. ᵎᵎ
-ᛝ English isn't my best skill yet so please be patient with me!  
-ᛝ Sometimes I might misunderstand things or take a little while to reply & type   
-ᛝ Sorry if I answer slowly or make mistakes I'm still learning hehe   
-┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
-<div align="center">
-  
 I mostly spend my time in the HoYoverse area ꒰ Safe Server #1 ! ꒱
 <div align="center">
-  
-𖦹 ׂ 𓈒 🦢 ／ ⋆ ۪ You'll probably find me in Pony Town a lot! ྀི
-<div align="center">
-  
-I'm often AFK while doing my everyday things so don't be surprised if I don't reply right away Ი︵𐑼
-<p align="center">
-  <img src="https://i.postimg.cc/htV6HD75/1787105318710.png" width="100%">
+   src="https://i.postimg.cc/htV6HD75/1787105318710.png" width="100%">
 <p align="center">
   <img src="https://i.postimg.cc/MKmGqSR1/1787102996890.png" width="100%">
