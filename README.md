@@ -1,6 +1,6 @@
 # goldentraveler
 <p align="center">
-   ྀི☁️ ⸝⸝ Eꬻtꮛrinְ︪︩g Eᩚᩚli's 𐐲ꮛalო ㅤㅤ₍ 𐍷ᤷ ՟ ᤹𐍷 ₎۪  𑂳ㅤ۪ㅤ
+   ྀི☁️ ⸝⸝ Entꮛꭇinְ︪︩g Eᩚᩚli's 𐐲ꮛalო ㅤㅤ₍ 𐍷ᤷ ՟ ᤹𐍷 ₎۪  𑂳ㅤ۪ㅤ
 <p align="center">
   <img src="https://i.postimg.cc/c6ydZD12/IMG-20260819-050022-460.jpg" width="100%">
 </p>
@@ -9,8 +9,8 @@
 </p>
 <div align="center">
 
-.✦ ݁˖ ⸝⸝ I'm a minor (16) ‎𖹭 please keep interactions respectful >⩊< ‎ꫂ᭪݁ 
-.✦ ݁˖ ⸝⸝ My pronouns are she/her
+.✦ ݁˖ ⸝⸝  ྀིI'ო a ოino𐐲 (ְ︪︩16) ‎𖹭 plꮛaຣe keep intᤢְ︪︩ꮛractions ꭇespꮛctfິ⃨᤻ᤢul >⩊< ‎ꫂ᭪݁ᩝᩝ 
+.✦ ݁˖ ⸝⸝ ოy p𐐲onouns are shꮛ/her
 </div>
 
 <h2>✦ DNI</h2>
