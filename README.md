@@ -12,3 +12,15 @@
 .✦ ݁˖ ⸝⸝ I'm a minor (16) ‎𖹭 please keep interactions respectful >⩊< ‎ꫂ᭪݁ 
 .✦ ݁˖ ⸝⸝ My pronouns are she/her
 </div>
+
+<h2>✦ DNI</h2>
+
+People I prefer not to interact with:
+
+• disrespectful / rude behavior  
+• hate towards people or communities  
+• unnecessary drama & negativity  
+• people who ignore boundaries  
+The full DNI list is available on my Strawpage .𖥔 ݁ ˖  ૮ ‌֖ ‌ ᩧ֢ ᩧ‌ ᩧ֥‌ 𑇖
+
+⸝⸝ Please check it before interacting with me.
